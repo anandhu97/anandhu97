@@ -17,3 +17,5 @@ Branding · Digital marketing · Business development · Strategic management ·
 ### 🤝 Let's connect
 
 🌐 https://futuretensedigital.com
+
+💼 https://www.linkedin.com/in/anandhupadmakumar/
